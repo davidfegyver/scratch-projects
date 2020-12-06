@@ -1,2 +1,3 @@
 # scratch-projects
-Lol, But ScRatCH is NOt a ProgRamminG Lang
+I dont usually make scratch projects
+But if I do, I will post it here :D
